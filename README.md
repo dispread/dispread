@@ -1,1 +1,1 @@
-Go home.
+Or don't.
